@@ -1,0 +1,1 @@
+See [blog post](http://replibot.blogspot.com/2013/04/revalpha-meter-meter-panel-eater.html) for overall description.
